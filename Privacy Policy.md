@@ -1,4 +1,4 @@
-Privacy Policy for MrYorkshireTea's FiveM Store
+Privacy Policy for Hercules Designs FiveM Store
 
 1. Introduction
 
